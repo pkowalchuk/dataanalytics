@@ -1,1 +1,1 @@
-# Data Analytics - Curso Virtual Oct 2024
+# Data Analytics - Online Course Oct 2024
